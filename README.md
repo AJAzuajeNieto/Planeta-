@@ -1,2 +1,1 @@
-# Planeta-
-Tierra es un hogar 
+Metaverso es un universo de la post-realidad 
